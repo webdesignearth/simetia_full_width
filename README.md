@@ -1,0 +1,1 @@
+# simetia_full_width
